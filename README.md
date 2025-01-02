@@ -1,2 +1,2 @@
 # cubingmadeeasy
-Free cubing guides and tutorials. One-on-one coaching and lessons. Operated by Luke Janzen.
+Free cubing guides and tutorials. Coaching coming soon.
